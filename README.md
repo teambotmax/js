@@ -28,6 +28,6 @@ ratain aja tuh tanah abang,biar jadi putih `wkwkwkwkwkkwwkwk`
 ------
 Add my line akun:
 - `reanyosari040`
-- `http://line/me/ti/p~reanyosari040`
+- `http://line.me/ti/p~reanyosari040`
 
 Thanks For [@Alfathdirk ] [LINE TCR]
